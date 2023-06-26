@@ -1,4 +1,3 @@
 BUIKA TSIMAFEI
 Buiko21111998@gmail.com
-+375336041464
 buiko1998@mail.ru
